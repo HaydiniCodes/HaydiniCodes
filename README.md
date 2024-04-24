@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Nothing
 - 📫 How to reach me... email
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... I love Dogs and that is why I do YouTube
 
 <!---
 HaydiniCodes/HaydiniCodes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
